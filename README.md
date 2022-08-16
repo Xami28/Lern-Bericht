@@ -7,25 +7,25 @@ In den Sommerferien habe ich viel Tischtennis zu hause mit meiner Familie gespie
 
 ## Was habe ich gelernt?
 
-Ich habe gelernt wie ich die Bälle unterschiedlich anschneiden kann, um dem ball verschiedene Richtungen zu geben und so es dem gegner schwieriger zu machen den Ball zu kriegen.
+Ich habe gelernt wie ich die Bälle unterschiedlich anschneiden kann, um dem Ball verschiedene Richtungen zu geben und so es dem Gegner schwieriger zu machen den Ball zu kriegen.
 
 ## Beschreibung
 
 ![image](https://user-images.githubusercontent.com/110893098/184816018-ceb8b365-d792-427c-90c7-2588af3e02dd.png)
 
-Ich habe gelernt wie ich den Ball einen Backspin geben kann, damit er eine rückwertsbewegung erhält.
+Ich habe gelernt wie ich dem Ball einen Backspin geben kann, damit er eine rückwertsbewegung erhält.
 
 https://www.youtube.com/watch?v=woT6NgJymBk
 Ich habe auch noch den Topspin gelernt.
 
 Im Tischtennis braucht man angeschnittene Bälle, damit man den Gegner besser bezwingen kann. (Einen Punkt zu erzielen)
-Es gibt verschiedene Arten wie man den Ball anschneiden kann. Ich habe von den verschidenen Varianten den Back Spin und den Top Spin gelernt. Für die beiden Schläge habe ich viele Stunden Tischtennis gespielt.
+Es gibt verschiedene Arten wie man den Ball anschneiden kann. Ich habe von den verschidenen Varianten den Backspin und den Topspin gelernt. Für die beiden Schläge habe ich viele Stunden Tischtennis gespielt.
 
 ## Verifikation
 
 Im Bild kann man einen Backspin sehen wie er funktioniert.
-Im Youtube Video kann man einen Topspin sehen wie er ausgeführt wird.
-Im Text habe ich beschrieben wiso man im Tischtennis Bälle anschneidet und welche davon ich gelernt habe.
+Das Youtube Video erklärt wie man einen Topspin ausführt.
+Der Text beschreibt wiso man im Tischtennis Bälle anschneidet und welche davon ich gelernt habe.
 
 # Reflektion zum Arbeitsprozess
 
